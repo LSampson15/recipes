@@ -7,6 +7,7 @@
 - 1x onion, sweet oy yellow
 - Salt and pepper
 - 1-2 tbsp. Apple cider vinegar
+- 1 jalepenio pepper
 - 1x Avocado
 ## Preparation
 
