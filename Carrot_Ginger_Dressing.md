@@ -7,4 +7,7 @@
 - 1 tbsp ginger
 - 1 tsp sesame oil
 - 1 tsp honey, maybe more
-- pinch of salt
+- 1 tsp pinch of salt
+
+#preparation
+blend it all together
